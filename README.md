@@ -1,0 +1,1 @@
+# Newscoop-Full-Version-Unlocked
